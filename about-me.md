@@ -1,5 +1,5 @@
 ## About Me
-Currently, I am a Senior at Morgan State University, located in Baltimore, Maryland. I am pursuing a Bachelor’s degree in Computer Science. My expected graduation date is in 2025.
+Currently, I am a Senior at Morgan State University, located in Baltimore, Maryland. I am pursuing a Bachelor’s degree in Biology. My expected graduation date is in 2025. I am also a Spring 2024 intitate of the Pi Eta Chapter of Phi Mu Alpha Sinfonia Fraternity of America Inc.
 
-[Linkedin Profile](https://www.linkedin.com/in/michael-adeleke-4a1228217/)
-
+[
+](https://www.linkedin.com/in/william-leach-919614192/)
