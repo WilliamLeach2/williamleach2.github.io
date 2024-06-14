@@ -1,7 +1,10 @@
 ## About My Mentor
 
-My mentor, Dr. Chris Crawford from the University of Alabama, is a researcher who’s work focuses on Brain-Computer Interfaces, as well as Human-Robot Interaction. His work aims to leverage novel neurophysiological sensing technologies, software engineering, and robotics to create tools and applications that support the exploration of Brain-Robot Interaction.
-
-[Mentor's Website](https://htilua.org/about-the-pi)
+My mentor, Mr. Temidayo is from the Obafemi Awolowo University, Ile-Ife
+(Adeyemi College of Education, Ondo Chapter), Ondo, Nigeria getting his
+Bachelor of Science in Geography Education, as well as his Master of Science
+in Geography and Planning at the University of Lagos, Nigeria, and now is
+currently working on getting his PhD in Bio-Environmental Sciences, Climate
+Science, at the Illustrious National Treasurer Morgan State University
 
 
