@@ -1,1 +1,1 @@
-
+I collaborated with my team to develop an elevator pitch video. We began to carefully write our scientific article. We have solidified the algorithms that will be used. Figuring out how to edit our elevator pitch video and creating an intriguing, non-boring pitch. 
