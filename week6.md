@@ -1,1 +1,2 @@
+ We had a lot of work to do and had to keep re-inputting the same data because it was incorrect or something. We had to expand our regions and compare it to the other cases in other counties to get a more accurate dipiction. We was finding out more evidence on the pm2.5 that is causing alot of respiratory diseases, however compare to the other counties Baltimore had the highest significant asthma emergency cases for people admitted into the hosptial.
 
