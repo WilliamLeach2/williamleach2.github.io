@@ -1,1 +1,1 @@
-
+The last and final week. We presentation our final project and it was a majore improvement from our mid summer project presentation. We found all what we was looking for in our research and how we can help change somethings for the better in the future. Dr.Li took us all out to eat to celebrate the work we all did togther at Charm City. I am thankful for the people I met created bonds with. I hope to work with them again in the future. We all still remain in contact.
