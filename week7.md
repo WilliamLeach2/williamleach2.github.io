@@ -1,1 +1,1 @@
-
+I've successfully plotted a variety of graphs in Python, including bar and line graphs, using the Matplotlib module. These duties have also helped me enhance my presenting skills, allowing me to share data findings more effectively. Several Python coding problems slowed my efforts. To address these obstacles, I spent more time analyzing and fixing coding bugs, assuring smooth execution and correct graph formation.
