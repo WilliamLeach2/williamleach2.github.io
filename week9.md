@@ -1,1 +1,1 @@
-
+This is the week we have been working on our Final presentation and our final research project paper. It has been rough for me these past weeks which made me distance myself from my team and people. When I was ready to talk I found people to talk to about my situations and they have helped me to push through and get right for my teamates and myself and finish the project strong. I'm thankful for the people I have met in this program and worked with. I've learned so much and look forward to being apart of more research projects. 
